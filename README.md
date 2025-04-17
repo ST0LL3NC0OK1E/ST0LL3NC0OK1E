@@ -1,5 +1,5 @@
 ![IMG_6832](https://github.com/user-attachments/assets/afea83ba-dd6d-4073-aa2f-1e058f7a46f8)
-
+⋆꙳•̩̩͙❅*̩̩͙‧͙ ‧͙*̩̩͙❆ ͙͛ ˚₊⋆
 
 
 
@@ -19,9 +19,9 @@
 
 
 
-
+⋆꙳•̩̩͙❅*̩̩͙‧͙ ‧͙*̩̩͙❆ ͙͛ ˚₊⋆
 ![IMG_6830](https://github.com/user-attachments/assets/41c41519-85f6-4f4c-9198-83433b03803a)
-
+⋆꙳•̩̩͙❅*̩̩͙‧͙ ‧͙*̩̩͙❆ ͙͛ ˚₊⋆
 
 
 
@@ -38,5 +38,5 @@
     ilovestollencreamicanyapabtitforhours...
 
 
-    
+ ⋆꙳•̩̩͙❅*̩̩͙‧͙ ‧͙*̩̩͙❆ ͙͛ ˚₊⋆   
 ![IMG_6827](https://github.com/user-attachments/assets/58c4a752-5ac9-44c0-8e20-754ce39095e1)
