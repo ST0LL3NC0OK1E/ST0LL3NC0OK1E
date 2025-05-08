@@ -1,4 +1,4 @@
-> i draw on people's straw if i think youre swag yeah
+> i draw on people's straw if i think they're swag yeah
 
 
 
