@@ -32,7 +32,8 @@ pfp art by @ renjianshilian0 or @ _人間失联_ on X
 
 
 <p align="center">
-<img width="2100" height="1194" alt="Untitled529_20250711145959" src="https://github.com/user-attachments/assets/288d10a4-de7a-427f-9931-7211f4937686" />
-</p>
+   
+<img width="2500" height="1422" alt="Untitled729_20250711194558" src="https://github.com/user-attachments/assets/d90cfe7f-cfd3-4bc2-980b-d568ac66630d" />
 
+</p>
 <sub> art by me!
